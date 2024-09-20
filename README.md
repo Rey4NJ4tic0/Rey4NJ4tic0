@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Rey4NJ4tic0
 - 👀 I’m interested in Mathematics
 - 🌱 I’m currently learning IT and Development
-- 💞️ I’m looking to collaborate on fellow future developers
+- 💞️ I’m looking forward to collaborate on fellow future developers
 - 📫 How to reach me ... reyanjatico@gmail.com
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... I actually draw and commission artworks
